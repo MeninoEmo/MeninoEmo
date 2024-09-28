@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Guilherrme
+- 👀 I’m interested in to know this
+- 🌱 I’m currently learning all i can
